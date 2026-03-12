@@ -1,6 +1,6 @@
 ## BELLOOO
 
-![coding gif](download.gif.gif)
+![coding gif](download.gif)
 
 -- ☆Multifandom☆
 - Arcane obvisouly 
