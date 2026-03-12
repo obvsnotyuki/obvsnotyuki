@@ -4,6 +4,7 @@
 
 -- ☆Multifandom☆
 - Arcane obvisouly
+- JJK
 - Yellowjackets
 - Amphibia
 - Green yuri
