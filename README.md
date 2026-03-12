@@ -1,10 +1,12 @@
-## BELLOOO
+## BELLOOO!!
 
 ![coding gif](download.gif)
 
 -- ☆Multifandom☆
-- Arcane obvisouly 
+- Arcane obvisouly
+- Yellowjackets
 - Amphibia
 - Green yuri
 - Mirai nikki
-- Batman/batfamily SPECIALLY NIGHTWING!! 
+- Batman/batfamily SPECIALLY NIGHTWING!!
+- and uhh many more ^^
